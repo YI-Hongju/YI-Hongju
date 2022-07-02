@@ -1,3 +1,3 @@
 # Welcome to Your Future
 ## Contact
-> <to_hongju@pm.me> TESTS
+> <to_hongju@pm.me>
